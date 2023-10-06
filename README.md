@@ -1,6 +1,6 @@
 ![Logo](https://i.ibb.co/8cXKJgr/glow-crop-to-Git.png)
 
-# Gabriele Cuscinà Web Developer Front-end
+# ***Gabriele Cuscinà Web Developer Front-end***
 
 **Hi there! ✌**
 
