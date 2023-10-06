@@ -33,7 +33,7 @@
 > &rarr; **Discipline | Creativity | Calm / Patient person | Empathizing | humble person**
 
 
-# Contatti personali 👤:
+# Personal Contacts 👤:
 
 [![ LINKEDIN ](https://i.ibb.co/C5FFfbB/linkedin-1.png)](https://www.linkedin.com/in/gabriele-cuscin%C3%A0)
 
